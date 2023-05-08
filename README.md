@@ -25,7 +25,7 @@ Here are some ideas to get you started:
 
 🏠 I live in Melbourne, but I'm originally from Chile. I love to travel, explore new cultures and cuisines, and meet new people.
 
-🎮 In my free time, you can find me playing music, reading non fiction, or going for hikes.
+🥾 In my free time, you can find me playing music, reading non fiction, or going for hikes.
 
 ## Work Experience
 
